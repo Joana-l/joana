@@ -45,7 +45,7 @@ Je suis particulièrement motivée par :
 ## 📫 Me contacter
 
 📍 [LinkedIn](https://www.linkedin.com/in/joana-laffitte-069415319/)  
-📩 Email sur demande ou en MP
+📩 Email-ljoanapb@gmail.com
 
 ---
 
